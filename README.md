@@ -1,1 +1,1 @@
-# spacewarriors.tk
+SPACEWARRIORS IS A SPACE GAME FOR MOBILES
